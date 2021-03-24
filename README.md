@@ -1,0 +1,1 @@
+> just some front end summary before i become a programmer
